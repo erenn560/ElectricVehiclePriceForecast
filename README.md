@@ -1,0 +1,1 @@
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.spglobal.com%2Fmobility%2Fen%2Fresearch-analysis%2Ffuel-for-thought-can-the-dealer-of-today-serve-the-ev-customer.html&psig=AOvVaw24QXdlPKIr-POnbXl9IDA3&ust=1708638249271000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqGAoTCOjYx9GzvYQDFQAAAAAdAAAAABCLAQ" width="auto">
